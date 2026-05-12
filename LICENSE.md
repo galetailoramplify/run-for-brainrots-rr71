@@ -1,4 +1,4 @@
-#  
+#  run for brainrots Script rare offers the most advanced run for brainrots Script, with teleport and auto-upgrade. Perfect for dominating any match.
 
 
 
